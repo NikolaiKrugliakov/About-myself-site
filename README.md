@@ -1,3 +1,5 @@
+![Alt text](Images/Kruglyakov_ambigramm-86377.png)
+
 # Что-то о себе...
 
 1. ***Живу в Москве***
